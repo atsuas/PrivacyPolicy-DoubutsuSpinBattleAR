@@ -1,0 +1,2 @@
+# PrivacyPolicy-DoubutsuSpinBattleAR
+PrivacyPolicy-DoubutsuSpinBattleAR
